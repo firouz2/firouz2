@@ -1,0 +1,5 @@
+- Hi, I’m @firouz2
+- I’m interested in linguistics
+- I’m currently learning linguistics lol
+- Pronouns: he/him
+- Fun fact: I'm not real 
